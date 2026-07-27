@@ -47,6 +47,8 @@ I welcome collaboration on work that makes public systems more legible, more acc
 
 <div align="center">
 
-**Justice is a systems requirement. Act accordingly.**
+**Justice is a systems requirement.** 
+
+*Act accordingly.*
 
 </div>
