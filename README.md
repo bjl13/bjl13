@@ -6,7 +6,7 @@
 
 I build the connective tissue between institutions, information, and the people expected to survive both.
 
-[**CivicBrands**](https://civicbrands.org) · [**Open Cognition**](https://open-cog.bjl13.org) · [**ORCID**](https://orcid.org/0009-0005-8824-4353)
+[**Means+Measures**](https://meansandmeasures.com) · [**Open Cognition**](https://open-cog.bjl13.org) · [**ORCID**](https://orcid.org/0009-0005-8824-4353)
 
 </div>
 
